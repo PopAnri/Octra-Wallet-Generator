@@ -42,7 +42,7 @@ bun start
 
 ---
 
-📢 **JOIN TG FOR UPDATES**: [t.me/EarnByAbhi23](https://t.me/EarnByAbhi23)
+📢 **Follow on X FOR UPDATES**: [x.com/PopAnri](https://x.com/PopAnri)
 
 
 
